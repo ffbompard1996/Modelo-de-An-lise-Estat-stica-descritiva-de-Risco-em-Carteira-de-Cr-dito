@@ -1,0 +1,1 @@
+# Modelo-de-An-lise-Estat-stica-descritiva-de-Risco-em-Carteira-de-Cr-dito
